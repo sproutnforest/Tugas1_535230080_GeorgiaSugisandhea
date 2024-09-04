@@ -1,0 +1,1 @@
+Hello! I'm Georgia Sugisandhea with NIM 535230080! My main page is on the file index.html so please click that one :D Thankyou!!
